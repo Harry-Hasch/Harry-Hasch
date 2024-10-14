@@ -5,7 +5,9 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...pay in btc sat (ZBD) fredfukcer88b2b3c1d7@zbd.gg
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... babylumber12@walletofsatoshi.com 
+Pay&Stay
+(⁠╯⁠°⁠□⁠°⁠）⁠╯⁠︵⁠ ⁠┻⁠━⁠┻ nurWerWagtGewinnt
 
 <!---
 Harry-Hasch/Harry-Hasch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
